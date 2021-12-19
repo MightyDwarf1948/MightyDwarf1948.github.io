@@ -1,2 +1,2 @@
-# MightyDwarf1948.github.io
+# Игорь Коц
 Мой первый сайт
